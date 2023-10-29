@@ -1,1 +1,0 @@
-# niche_research
